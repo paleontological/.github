@@ -6,7 +6,10 @@ Utilizing its unique collections, staff, physical facilities and digital presenc
 ---
 
 ## Visit Us Online
+
 [Paleontological Research Institution](https://www.priweb.org)
+
+[Earth@Home](https://www.earthathome.org)
 
 [Museum of the Earth](https://www.museumoftheearth.org)
 
